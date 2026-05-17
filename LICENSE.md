@@ -1,4 +1,4 @@
-# 
+# secure Visual Studio para PC executor é o melhor Visual Studio para PC executor com realce de sintaxe e resolução de conflitos. Seguro, confiável e otimizado para máximo
 
 
 
